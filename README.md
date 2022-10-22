@@ -11,7 +11,7 @@
 
 - 👨‍💻 Tous mes infos sont disponibles sur [https://solo.to/aushiro](https://solo.to/aushiro)
 
-- 📫 Comment me joindre **AushiroEnLive#8798**
+- 📫 Comment me joindre **AushiroEnLive#0001**
 
 - ⚡ Fun fact **J'aime beaucoup Jojo Bizzare Adventure**
 
